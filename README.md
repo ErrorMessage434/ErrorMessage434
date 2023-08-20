@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ErrorMessage434
+- 👀 I’m interested in CyberSecurity, Ethical hacking, Pen Testing. What gets my attention is how hackers come up with more possibilities to steal idenities every year.
+- 🌱 I’m currently in Univeristy of North Texas studying for a bacholor's in CyberSecurity and will be going back for a Masters in CyberSecurity.
+- 💞️ I’m looking to collaborate with other Ethical hackers, as well as Pen testers, I want to learn as much as I can in the everyday adapting fieild of cyber security
+- 📫 How to reach me? You can reach me through my email address, which is studyhead990@gmail.com.
